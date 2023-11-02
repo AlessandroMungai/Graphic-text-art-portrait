@@ -1,1 +1,1 @@
-# Graphic-text-art-portrait
+# Graphics-text-art-portrait
